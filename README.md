@@ -1,2 +1,2 @@
-# python_assignment
-CODE BY ABDULSAMAD❤😎🏴‍☠️
+# CODE BY ABDULSAMAD❤😎🏴‍☠️
+# [VIEW CODE ON GITHUB](https://github.com/ABDULSAMADABDULLAH2/python_assignment)
